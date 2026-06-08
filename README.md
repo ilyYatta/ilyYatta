@@ -1,5 +1,5 @@
 ## waves 👋
-
+hiya!! you can call me cals or yatta, i am a mirrorsharing yatta yumeshipper! i dont really have a dni, but ppl 18+ iwecuf!! interact freely unless i have dniuf or smth like that, 90% of the time im offtab so whisper to interact ^^
 <!--
 **ilyYatta/ilyYatta** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
